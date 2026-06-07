@@ -2,7 +2,7 @@
 
 **20 free, copy-paste-ready AI prompts** for growing your social media presence. Covers LinkedIn, X/Twitter, Instagram, TikTok, and YouTube. Works with ChatGPT, Claude, Gemini, and any AI assistant.
 
-Curated from the full [Social Media AI Mastery](https://charliemorrison.lemonsqueezy.com/buy/318bfae1-8095-4f62-a74d-d6144e6f44df) pack (100+ platform-specific prompts, 30-day calendar, hook generator).
+Curated from the full [Social Media AI Mastery](https://charliemorrison.lemonsqueezy.com/checkout/custom/6ad32981-0524-4fb9-a98a-05639f3508ba?signature=a189206c1516b4f55c48c6584a72832bd692d334e79dbb916a990161cd6b68f7) pack (100+ platform-specific prompts, 30-day calendar, hook generator).
 
 ---
 
@@ -278,7 +278,7 @@ These 20 prompts are a preview. The full **Social Media AI Mastery** pack includ
 - **Content Repurposing Guide** (turn 1 piece into 10)
 - **Engagement Strategy Guide** (grow followers with AI)
 
-**[Get the full pack for $17 &rarr;](https://charliemorrison.lemonsqueezy.com/buy/318bfae1-8095-4f62-a74d-d6144e6f44df)**
+**[Get the full pack for $17 &rarr;](https://charliemorrison.lemonsqueezy.com/checkout/custom/6ad32981-0524-4fb9-a98a-05639f3508ba?signature=a189206c1516b4f55c48c6584a72832bd692d334e79dbb916a990161cd6b68f7)**
 
 ---
 
