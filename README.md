@@ -280,6 +280,8 @@ These 20 prompts are a preview. The full **Social Media AI Mastery** pack includ
 
 **[Get the full pack for $17 &rarr;](https://charliemorrison.lemonsqueezy.com/checkout/custom/6ad32981-0524-4fb9-a98a-05639f3508ba?signature=a189206c1516b4f55c48c6584a72832bd692d334e79dbb916a990161cd6b68f7)**
 
+> 💸 **15% off** with code `GH15` at checkout.
+
 ---
 
 ## Other Free Prompt Collections
